@@ -32,16 +32,16 @@ Phola Lounge is your ultimate destination for premium nightlife experiences. Fro
 
 ## 🌍 Find Us
 
-- 📍 **Location:** [Your Address Here]
-- 📞 **Phone:** [Your Phone Number]
+- 📍 **Location:** 120 Woodfordgrove, Windermere, Durban
+- 📞 **Phone:** +27 40 010 608 728 248
 - 📧 **Email:** contact@pholalounge.com
-- 📱 **WhatsApp:** [Your WhatsApp Link]
+- 📱 **WhatsApp:** +27 40 010 608 728 248
 
 **Follow Us:**
-- 📘 Facebook: [Your Facebook Link]
-- 📷 Instagram: [@pholalounge]
-- 🎵 TikTok: [@pholalounge]
-- 🐦 Twitter: [@pholalounge]
+- 📘 Facebook: [@pholaloungeptyltd](https://facebook.com/pholaloungeptyltd)
+- 📷 Instagram: [@pholaloungeptyltd](https://instagram.com/pholaloungeptyltd)
+- 🎵 TikTok: [@pholaloungeptyltd](https://tiktok.com/@pholaloungeptyltd)
+- 💬 WhatsApp: [Message us](https://wa.me/27400106087248)
 
 ---
 
@@ -59,7 +59,7 @@ Phola Lounge is your ultimate destination for premium nightlife experiences. Fro
 
 - **Table Reservations:** [Booking Link]
 - **Private Events:** contact@pholalounge.com
-- **Group Packages:** [Inquiry Form]
+- **Group Packages:** WhatsApp +27 40 010 608 728 248
 
 ---
 
